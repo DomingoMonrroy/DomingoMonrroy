@@ -1,6 +1,6 @@
 # Hola, soy Domingo Monrroy ✌️😘
 
-**Psicólogo de profesión, cesante por vocación (mentira, contrátenme), y actual protagonista del arco de entrenamiento de este manga llamado "Domingo's Bizarre Startup: ¿Es muy precipitado querer ser CEO en Silicon Valley cuando mi cuenta está en -300.000 CLP y mi Tech Lead es un gato naranja y gordo?" 🚀📉😼".**
+**Psicólogo de profesión, cesante por vocación (mentira, contrátenme), y actual protagonista del arco de entrenamiento de este manga llamado "Sunday's Bizarre Startup: ¿Es muy precipitado querer ser CEO en Silicon Valley cuando mi cuenta está en -300.000 CLP y mi Tech Lead es un gato naranja y gordo?" 🚀📉😼".**
 
 Cambié el diván y los análisis clínicos por pelearme con la consola de comandos. Si te soy sincero, todavía me cuesta entender la mitad de las cosas que leo, pero tengo una beca, internet y un sueño: crear aplicaciones a gran escala antes de que la IA nos reemplace a todos. Bueno, eso y lograr hacerme asquerosamente rico gracias a la creatividad que me dan las sustancias 🌿 y el noble arte del *Vibe Coding* 🧙‍♂️✨.
 
@@ -20,3 +20,4 @@ Cambié el diván y los análisis clínicos por pelearme con la consola de coman
 
 📫 **Contacto (para reclutadores, mentores, o si me quieren donar para cigarros o bebidas energéticas - datos de transferencia al DM 📩):**
 - [LinkedIn](https://www.linkedin.com/in/domingo-monrroy)
+- [Discord](https://discordapp.com/users/376390641594400769)
